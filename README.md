@@ -2,4 +2,4 @@
 
 Client Website Page 
 
-Will be adding more details and screenshots at 
+Will be adding more details and screenshots at customers discretion.
